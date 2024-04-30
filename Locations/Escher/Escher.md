@@ -1,0 +1,13 @@
+In this world, three distinct races carve out their existence amidst the vast expanse of land, each with its own unique culture, strengths, and struggles. Those races are [[CoQlings]], [[Quivarians]] and [[Blurtonians]].
+
+Escher is a land shaped by cataclysmic forces and defined by its striking duality. Once, long ago, Escher was a single vast supercontinent, stretching from pole to pole, its sprawling plains and rugged mountains home to a myriad of diverse ecosystems and civilizations.
+
+However, the tranquillity of Escher was shattered when a colossal asteroid collided with the planet's surface, triggering a cataclysmic magnetic storm of unparalleled magnitude. This cataclysmic event wrought havoc upon the very fabric of Escher's reality, tearing the land asunder and lifting a massive portion of the continent high into the skies above.
+
+Now, the world of Escher exists as two distinct realms: the [[Lowlands]], where the remnants of the shattered continent lie scattered across the vast expanse below, and the [[Highlands]], the elevated landmass suspended high above the clouds, perpetually bathed in the ethereal light of the sun and moon.
+
+In the [[Lowlands]], diverse civilizations eke out an existence amidst the remnants of their once-united world. From verdant forests teeming with life to arid deserts scorched by the relentless sun, the [[Lowlands]] are a patchwork of contrasting landscapes, each harbouring its own secrets and challenges. Here, some inhabitants harness the raw power of nature to forge communities and civilizations amidst the ruins of the past while others harness advanced technology to aid in their progression.
+
+Meanwhile, high above in the [[Highlands]], a different world unfolds. Suspended amidst the swirling mists and bathed in the shimmering light of the celestial bodies, the [[Highlands]] are a realm of wonder and mystery. Here, towering cliffs and cascading waterfalls punctuate the landscape, while floating islands drift lazily through the endless expanse of the heavens. In this surreal realm, inhabitants live in harmony with the elements and their technology, their lives shaped by the rhythm of the celestial dance above.
+
+As day fades into night and the stars paint patterns across the sky, the inhabitants of Escher navigate the delicate balance between the worlds below and above, their lives intertwined with the very essence of their fractured world. Amidst the chaos and beauty of Escher, the echoes of a forgotten past linger, waiting to be discovered by those brave enough to seek the truth hidden within its depths.

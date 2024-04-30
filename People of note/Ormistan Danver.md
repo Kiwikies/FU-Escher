@@ -1,0 +1,9 @@
+In the tangled web of intrigue and rebellion that grips the world of [[Escher]], one figure stands at the center of it all: Ormistan Danver. A [[Faekind]] by birth, Ormistan defies the expectations of his own kind, choosing to fight against the tyranny of the [[Faekind]] regime and lead [[The Resistance]] in their struggle for freedom and liberation.
+
+On the surface, Ormistan plays the role of a loyal servant of the [[Faekind]], serving as a double agent within their ranks and controlling the [[Landpiercer]] that traverses the [[Lowlands]]. His position grants him access to valuable information and resources, allowing him to coordinate The Resistance's efforts from behind enemy lines while evading suspicion and detection.
+
+But beneath his Faekind facade lies a heart that beats with the fervor of rebellion, as Ormistan secretly leads The Resistance from the shadows, his cunning intellect and strategic genius guiding their actions every step of the way. With a keen understanding of both Faekind tactics and Escher's native inhabitants, he navigates the treacherous waters of espionage and intrigue with unmatched skill, always staying one step ahead of his adversaries.
+
+As the leader of The Resistance, Ormistan inspires unwavering loyalty and devotion among his followers, his charisma and determination serving as a beacon of hope in the darkest of times. Despite the risks and dangers that accompany their fight against the Faekind, he remains steadfast in his commitment to their cause, driven by the belief that freedom is worth any sacrifice.
+
+But Ormistan's dual role as both a Faekind operative and leader of The Resistance comes with its own set of challenges and dangers. With every move he makes, he must tread carefully, balancing the delicate line between loyalty and betrayal, knowing that one false step could spell disaster for himself and all those who follow him.

@@ -1,0 +1,11 @@
+At the pinnacle of [[Faekind]] dominance stands their formidable ruler, a figure shrouded in mystery and draped in the trappings of power. Known simply as The Sovereign, this enigmatic leader commands unwavering obedience from his subjects and instils fear and awe in all who dare to oppose him.
+
+The Sovereign is a being of immense power and authority, his will exerting a gravitational pull that extends far beyond the reaches of his throne. With the ability to negate both magic and technology, he stands as an insurmountable barrier to those who would challenge his rule, his mere presence enough to stop the [[Landpiercer]] in its tracks and quell any hope of rebellion.
+
+Yet, it is not just his formidable powers that distinguish The Sovereign; it is his cunning intellect and ruthless determination to maintain his grip on power at any cost. Behind his inscrutable façade lies a mind sharp as a razor, constantly calculating and strategizing to ensure the continued dominance of the [[Faekind]] over the land of [[Escher]].
+
+From his opulent throne room in the heart of the [[Quivarians]] cities, The Sovereign issues his commands with absolute authority, his words carrying the weight of law and his decrees enforced with swift and merciless reprisals. Under his rule, dissent is crushed without mercy, and those who dare to defy his will are met with the full force of his wrath.
+
+Yet, amidst the iron grip of The Sovereign, whispers of rebellion still echo through the land. [[The Resistance]], fuelled by a burning desire for freedom and justice, stands as a thorn in his side, their actions threatening to undermine his authority and unravel his carefully laid plans.
+
+As the struggle for dominance in [[Escher]] reaches its climax, The Sovereign remains an enigmatic and formidable figure, his power unchallenged and his rule absolute. But behind the façade of invincibility lies a vulnerability that [[The Resistance]] seeks to exploit, for even the mightiest tyrant can be brought low by the will of the people united in their quest for freedom.

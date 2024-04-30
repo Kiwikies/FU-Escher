@@ -1,0 +1,11 @@
+In the heart of the [[Lowlands]], amidst the tangled undergrowth and swirling mists, a beacon of hope shines bright amidst the darkness of oppression. This beacon is known as The Resistance, a courageous band of [[Escher]]'s native inhabitants who have banded together to fight against the tyrannical rule of the [[Faekind]] invaders.
+
+Led by [[Ormistan Danver]] who have rallied their people against the [[Faekind]]'s oppressive regime, The Resistance is a diverse coalition of individuals from all walks of life. From skilled warriors and cunning strategists to resourceful engineers and daring adventurers, each member of The Resistance brings their own unique talents and abilities to the fight for freedom and liberation.
+
+At the heart of The Resistance's operations lies the [[Landpiercer]], a symbol of both the [[Faekind]]'s control and the [[Escher]] people's defiance. Utilizing the Land Train as a means of transportation and communication, The Resistance coordinates their efforts from the depths of the [[Lowlands]], striking swift and decisive blows against their oppressors while evading detection and capture.
+
+From daring raids on [[Faekind]] supply lines to acts of sabotage against key strategic targets, The Resistance employs a variety of tactics to disrupt the [[Faekind]]'s grip on power and sow the seeds of rebellion among the people of [[Escher]]. Their actions are bold and audacious, carried out with precision and determination as they fight to reclaim their homeland from the clutches of tyranny.
+
+But the path of The Resistance is fraught with danger, for the [[Faekind]]'s reach extends far and their reprisals are swift and merciless. Every member of The Resistance knows the risks they face, but they stand undaunted in the face of adversity, fuelled by the belief that even the mightiest oppressor can be brought to their knees by the power of unity and determination.
+
+As the flames of rebellion spread across the land, The Resistance grows stronger with each passing day, their ranks swelling with new recruits drawn to the call of freedom and justice. And amidst the chaos and uncertainty of [[Escher]], the fate of its people hangs in the balance, their hopes for liberation resting in the hands of those brave enough to stand up and fight back against the forces of darkness.
