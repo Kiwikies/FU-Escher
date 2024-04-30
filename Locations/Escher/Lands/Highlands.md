@@ -1,9 +1,0 @@
-The breath-taking Highlands, where islands of enchanting beauty float gracefully amidst the azure skies, held aloft by the mesmerizing pull of a vast gravity well. Here, amidst the swirling mists and towering cliffs, the [[Quivarians]] have crafted their magnificent cities, perched precariously on the edge of the heavens, their spires reaching towards the stars.
-
-The Highlands are a realm of wonder and splendour, where bridges span the chasms between the floating islands, their sturdy structures providing safe passage for travellers and traders alike. These bridges serve as lifelines for the inhabitants of the Highlands, connecting the disparate islands in a web of interwoven pathways that crisscross the sky.
-
-But perhaps most awe-inspiring of all are the gravity lifts, towering structures that rise like pillars of shimmering light from the depths of the [[Lowlands]] to the heights of the Highlands. Powered by the gravitational forces of the meteor that struck [[Escher]] long ago, these lifts offer swift and effortless passage between the two realms, ferrying travellers on a journey of breath-taking beauty and unparalleled splendour.
-
-Yet, amidst the majesty of the Highlands, danger lurks in the shadows. Great monsters roam the skies and prowl the islands, their massive forms casting a shadow over the land below. From winged behemoths that soar through the clouds to titanic beasts that stalk the floating forests, these creatures are a constant reminder of the untamed beauty and perilous nature of the Highlands.
-
-As you journey through the awe-inspiring landscapes of the Highlands, be prepared to encounter wonders beyond imagination and dangers beyond reckoning. From the far-spanning bridges that cross the void, to the gravity lifts that offer passage between worlds, the Highlands are a realm of endless discovery and adventure, beckoning you to explore its hidden depths and unlock its secrets.
